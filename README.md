@@ -35,6 +35,7 @@ For example, if you **deposit $100**, you’ll get an **extra $20**, giving you 
 
 💡 **Don’t miss this exclusive offer** to boost your capital and trade smarter!  
 
+<a href="https://broker-qx.pro/sign-up/fast/?lid=1109154"><img src="https://static.quotex.io/files/11_en/468_60.jpg"></a> 
 ---
 
 ## 📈 Why Trade on Quotex?  
