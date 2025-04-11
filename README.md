@@ -70,3 +70,9 @@ Quotex is one of the **most trusted trading platforms**, offering access to **fo
 Quotex provides an **excellent trading experience** with **quick withdrawals** and **exclusive bonuses**. By using promo code **DEPOSIT20**, you can **instantly boost your deposit by 20%** and start trading with a **larger balance**.  
 
 📢 **Act now! Claim your 20% deposit bonus today and invest smarter on Quotex!** 🚀  
+<h3>Follow us in Social Media</h3>
+<ul>
+<li><a href="https://github.com/Checked-Promo-Codes">Github</a></li>
+<li><a href="https://mirror.xyz/0xaFcA0DCAfB999A248e24C9FFCA942c9fbC17B19C">Mirror.xyz</a></li>
+<li><a href="https://x.com/pocketoption100">Twitter</a></li>
+</ul>
